@@ -1,1 +1,3 @@
 - [Cannabis in Algeria](https://www.daggadiaries.com/countries/cannabis-in-algeria)
+- [Cannabis in Angola](https://www.daggadiaries.com/countries/cannabis-in-angola)
+- [Cannabis in Benin](https://www.daggadiaries.com/countries/cannabis-in-benin)
