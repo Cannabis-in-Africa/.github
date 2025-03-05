@@ -1,3 +1,5 @@
 - [Cannabis in Algeria](https://www.daggadiaries.com/countries/cannabis-in-algeria)
 - [Cannabis in Angola](https://www.daggadiaries.com/countries/cannabis-in-angola)
 - [Cannabis in Benin](https://www.daggadiaries.com/countries/cannabis-in-benin)
+- [Cannabis in Botswana](https://www.daggadiaries.com/countries/cannabis-in-botswana)
+- [Cannabis in Burkina Faso](https://www.daggadiaries.com/countries/cannabis-in-burkina-faso)
