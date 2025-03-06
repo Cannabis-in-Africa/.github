@@ -11,7 +11,7 @@
 - [Cannabis in Central African Republic](https://www.daggadiaries.com/countries/cannabis-in-central-african-republic)
 - [Cannabis in Chad](https://www.daggadiaries.com/countries/cannabis-in-chad)
 - [Cannabis in Comoros](https://www.daggadiaries.com/countries/cannabis-in-comoros)
-- [Cannabis in Democratic Republic of Congo](https://www.daggadiaries.com/countries/cannabis-in-democratic-republic-of-congo)
+- [Cannabis in Democratic Republic of Congo](https://www.daggadiaries.com/countries/cannabis-in-democratic-republic-of-the-congo)
 - [Cannabis in Djibouti](https://www.daggadiaries.com/countries/cannabis-in-djibouti)
 - [Cannabis in Egypt](https://www.daggadiaries.com/countries/cannabis-in-egypt)
 - [Cannabis in Equatorial Guinea](https://www.daggadiaries.com/countries/cannabis-in-equatorial-guinea)
